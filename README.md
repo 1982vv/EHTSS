@@ -1,2 +1,2 @@
 # EHTSS
-everyone has to start somewhere
+everybody has to start somewhere
